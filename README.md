@@ -1,2 +1,2 @@
 # hello-world
-Co ja robię tu? Uuu, co Ty tutaj robisz?!
+Co ja robię tu? Co TY tutaj robisz?!
